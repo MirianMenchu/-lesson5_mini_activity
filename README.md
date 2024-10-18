@@ -1,1 +1,0 @@
-# -lesson5_mini_activity
